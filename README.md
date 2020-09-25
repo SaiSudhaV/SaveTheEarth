@@ -6,4 +6,6 @@
 ##
 **Abilites:**
 *Dimensional transportation,
-Electric manipulation*
+Electric manipulation
+Flying
+Cracking Jokes*
